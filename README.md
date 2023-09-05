@@ -1,0 +1,2 @@
+# ilk-calisma
+ya allah
